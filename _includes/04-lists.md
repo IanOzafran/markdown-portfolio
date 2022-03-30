@@ -1,1 +1,5 @@
-Replace this with a list of your favorite things.
+1. The HUNTRESS
+2. THE GHOSTFACE
+3. THE DEMOGORGON
+4. THE NEMESIS
+5. THE LEGO
